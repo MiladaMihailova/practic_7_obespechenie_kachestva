@@ -1,0 +1,1 @@
+# practic_7_obespechenie_kachestva
